@@ -1,4 +1,4 @@
 # nee-istam
 nachindhi pettuko 
-jai baaji
-ayyagaaarey no:1
+jai faavani
+ayyagaaarey no:2
